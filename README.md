@@ -1,0 +1,2 @@
+# 13a83982-b8cc-45fe-9224-2487e325b377-hero-1
+Hero section variant 1 for 13a83982-b8cc-45fe-9224-2487e325b377
